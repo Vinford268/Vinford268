@@ -1,3 +1,5 @@
+so sorry if i miss your whispers ૮(˶ㅠ︿ㅠ)ა
+
 Vin / Stanford - He / Xe / It - P-DID system - Yumeshipper
 
 
